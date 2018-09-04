@@ -13,7 +13,7 @@ I just flattened it so I could keep a cleaner git history
 
 ## Local development
 
-All new posts are made in the [_posts](_./posts) folder with the syntax
+All new posts are made in the [_posts](_posts) folder with the syntax
 
 `<date in iso>-<title>.md`
 
