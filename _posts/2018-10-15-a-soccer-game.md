@@ -46,6 +46,10 @@ got to the gate our driver dropped us off and then drove away as quick as he
 could. Wouldn't blame him, but we were dropped at the VIP gate as the president
 of Kenya's motorcade was driving by so the gates were opened for him.
 
+![View from out taxi](https://lh3.googleusercontent.com/IJZPk5xzRzBOmOm7imOg6L5Hj8U1Fk-gkyqpbOadaMTnleQuUzJ6iwPheZQFATGZQHkyS3VDbs0r5ME6Psvi77uL7sMFB-g3UoHsEiWM4zsp0rFwilGM0IDRpu_IpLtywWr2HeE-z5T6uJ_avJjrQPQ4KaRUAVWawuV1Fw_HlK600sRZBmNM5jap8kYVjkx9tfJu6FHZA-8ZmrLyFR8CBJVu8aTWbXIOxmTaooBlMvrIXQOq_hrxGZZIhIhLYW7-ATeIu3NcTVuin3-lSuIKsezs5QWFI8jEvB_12JkYLYcuQsx5j2hMSenrx71NKdeYktLXuQID1p7A27jiUu4JxrLlt_AOIgmnkqE2XX9P39wT3NRfMIHqWRbNhI2VTmVn02Rgv0PONCTLjM_MfEGAN8c1XroOOFl9KssscQ_2pJyfEsqTs4kmL_alntvRfP-3HS2CPZ-7iq0bh5Q9ckXWu3S6Q77JoURcJJ0JUpMkD6fDmkjGZjbpmgszs9h50FWutqfo2XNlPOEelnczEI-VeDIgyesAvUsNsix97x2p0pxDKfIKxzCkgnGWjj61piCdXSwE2nBDbKjC88k8-dnurh-W9OG25I_ov89_x3vA4XCp819Sux4LuIE05ValX2HWWrh91YAGOgT0P6hdJ2b-Tga0zAPizyA6ZutD4fo1QgwV0anUHM2J89NuXd7OXM6MIThm3KFCLxN4idhpyw=w1280-h960-no)
+
+###### Tear gas from our taxi
+
 Also at this gate there were were probably 50 other people trying to get into
 the game who were there prior to us getting dropped off, but the guards
 wouldn't open the gate. But, once the presidential motorcade went through, as
